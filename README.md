@@ -3,8 +3,8 @@
 Project Topic: Delivering an International AGM Travel Program During COVID-19
 
 Organization: Finchglow Travels | Client: MRS Oil
+
 Role: Account Manager / Project Lead
-Portfolio planning period: February 2020–March 2021
 
 Problem
 
