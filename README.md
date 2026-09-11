@@ -6,6 +6,9 @@ Organization: Finchglow Travels | Client: MRS Oil
 
 Role: Account Manager / Project Lead
 
+Skills demonstrated: Client management, integrated planning, supplier coordination, financial coordination, contingency planning, and risk management.
+
+
 Problem
 
 An international annual general meeting required coordinated travel, accommodation, conference facilities, transportation, and leisure activities. COVID-19 disrupted planning and changed costs, travel conditions, health requirements, and supplier arrangements. The trip's scale also created challenges around the client's credit limit.
@@ -31,6 +34,4 @@ Managed communication and readiness across the participating teams and suppliers
 Results
 
 According to my project experience, the trip proceeded successfully in March 2021 after replanning. The case study demonstrates how I coordinated a complex travel program under changing conditions. Kenya, the modeled traveler count, naira budgets, satisfaction scores, and budget-variance figures are illustrative scenario details, not confirmed client records.
-
-Skills demonstrated: Client management, integrated planning, supplier coordination, financial coordination, contingency planning, and risk management.
 
